@@ -1,2 +1,0 @@
-# andynuygen.github.io
-Latitude
